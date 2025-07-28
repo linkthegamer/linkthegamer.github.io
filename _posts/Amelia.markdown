@@ -17,7 +17,9 @@ You are a mouse. Your life has always been one of caution and fear. scurrying fr
 
 Wiggling in her grasp you try to break free as she brings you to her bed and places you at the height of the belly. The large tan expanse stretches out before you, a taunt tummy designed to turn you from mouse to meal. 
 
-"Do you like what you see little one? You will soon be part of all this pretty." the cheetah rubs her belly as it gives a small growl of hunger, a growl that becons for you do join it.
+"Do you like what you see little one? You will soon be part of all this pretty." the cheetah rubs her belly as it gives a small growl of hunger, a growl that becons for you do join it. You look behind you and see a drop you can't hope to survive without injury, you look in front of you and see that stomach
+
+"Don't be afriad to touch it, it is going to be your new home eventually" You shiver at the thought, this belly will end you, and according to the cheetah you will be the one who ask it to. Suddently a paw gives you a small push toward the stomach. You are still nervious she will decide to eat you if you don't comply so you tenetatively place a paw on the taunt stomach, the fur under your paw bristling and shuddering, another deep glork echoing out from just beyond all that fur, muscle, and fat.
 
 ...
 
