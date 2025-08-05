@@ -5,7 +5,7 @@ date:   2025-07-25 12:00:00 +0000
 categories: Stories
 ---
 
-You are a mouse. Your life has always been one of caution and fear. Scurrying from house to house in search of crumbs. dodging the hungry gaze of preds and the stomping paws of giants. It's a rough life, but it is yours, or was yours, you guess. You found yourself today having made a mistake that cost you your freedom. A simple pantry raid without checking what kind of giant owned the place. Now you find yourself staring at the smiling face of a female cheetah.
+You are a mouse. Your life has always been one of caution and fear. Scurrying from house to house in search of crumbs. Dodging the hungry gaze of preds and the stomping paws of giants. It's a rough life, but it is yours, or was yours, you guess. You found yourself today having made a mistake that cost you your freedom. A simple pantry raid without checking what kind of giant owned the place. Now you find yourself staring at the smiling face of a female cheetah.
 
 "Well, hello there, my little mouse."
 
@@ -27,7 +27,7 @@ Wiggling in her grasp, you try to break free as she brings you to her bed and pl
 
 "Do you like what you see, little one? You will soon be part of all this pretty."
 
-The cheetah rubs her belly as it gives a small growl of hunger, a growl that beckons for you to join it. You look behind you and see a drop you can't hope to survive without injury; you look in front of you and see that stomach.
+The cheetah rubs her belly as it gives a small growl of hunger, a growl that beckons for you to join it. You look behind you and see a drop you don't know if you want to risk; you look in front of you and see that stomach.
 
 "Don't be afraid to touch it; it is going to be your new home eventually."
 
@@ -64,3 +64,9 @@ She brings her muzzle down so all you can see is her tan snout and black lips be
 "Don't want you and the ice cream to melt into a soup on me now... well, not till you're both inside of me."
 
 She chides as she sits back and grabs the spoon, digging it into one of the scoops. You watch as she moves the spoon to her opening mouth. You watch as she slowly inserts that creamy treat into her muzzle and closes her lips around the spoon before pulling it out empty. She would savor the mouthful for a moment before swallowing it down, a lump forming in her throat before disappearing behind her collar. Just like you will soon enough.
+
+Soon the mounds of frozen dairy are mostly gone. To your surprise the cheetah puts away the spoon and grabs her chopsticks again, she expertly works them between your sides so they are holding you up by your armpits as she raises you to her mouth. 
+
+"Thank you for being such a good little mousie, I hope you enjoy your trip as much as i do your sacrifice."
+
+With that those black thin lips part. You are greated with a full few into that yawning pink abyss and blasted with the scents of ice cream, sushi, and a hit of fellow rodents. The smell is quite strong. However you can't look away.
