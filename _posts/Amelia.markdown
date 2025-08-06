@@ -69,4 +69,6 @@ Soon the mounds of frozen dairy are mostly gone. To your surprise the cheetah pu
 
 "Thank you for being such a good little mousie, I hope you enjoy your trip as much as i do your sacrifice."
 
-With that those black thin lips part. You are greated with a full few into that yawning pink abyss and blasted with the scents of ice cream, sushi, and a hit of fellow rodents. The smell is quite strong. However you can't look away. Instead you look straight ahead into the maw in front of you, watching those strands of drool snap as she opens wider and wider.
+With that those black thin lips part. You are greated with a full few into that yawning pink abyss and blasted with the scents of ice cream, sushi, and a hit of fellow rodents. The smell is quite strong. However you can't look away. Instead you look straight ahead into the maw in front of you, watching those strands of drool snap as she opens wider and wider. Beyound those drool strands, past that expanse of a tongue lies the hungry pink flexing void of the throat. Suddenly the tongue expands out and under you. Waiting and undulating.
+
+Without any more words you find yourself lowered upon the tongue as it dips and cups around you pulling you inside of the mouth, leaving your feet and tail outside as she closes her mouth. Next thing you 
