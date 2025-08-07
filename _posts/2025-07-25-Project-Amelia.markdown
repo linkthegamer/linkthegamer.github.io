@@ -1,11 +1,10 @@
----
-layout: post
+andatorsatorsrylayout: post
 title:  "Project Amelia"
 date:   2025-07-25 12:00:00 +0000
 categories: Stories
 ---
 
-You are a mouse. Your life has always been one of caution and fear. Scurrying from house to house in search of crumbs. Dodging the hungry gaze of hungry predators and the stomping paws of unaware giants. It's a rough life, but it is yours, or was yours, you guess. You found yourself today having made a mistake that cost you your freedom. A simple pantry raid without checking what kind of giant owned the place. Now you find yourself staring at the smiling face of a female cheetah.
+You are a mouse. Your life has always been one of caution and fear. Scurrying from house to house in search of crumbs. Dodging the hungry gaze of predators and the stomping paws of unaware giants. It's a rough life, but it is yours, or was yours, you guess. You found yourself today having made a mistake that cost you your freedom. A simple pantry raid without checking what kind of giant owned the place. Now you find yourself staring at the smiling face of a female cheetah.
 
 "Well, hello there, my little mouse."
 
