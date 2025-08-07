@@ -1,4 +1,5 @@
-andatorsatorsrylayout: post
+---
+layout: post
 title:  "Project Amelia"
 date:   2025-07-25 12:00:00 +0000
 categories: Stories
